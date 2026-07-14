@@ -6,9 +6,18 @@ DNI List
 
 ___________________
 Proshipper, Darkshipper, etc.
-Radqueers, Superstraight, Nazism, Zionism, TransID, RCTA, Zoophiles, Pedos/MAPs, Endogenic systems, MAGA Supporters, AI "Artists"
 
-Discrimination of any kind eg. Misogynists, Homophobia, Transphobia, Xenophobia, Racists, Sexists, Ableists, Bigots
+Radqueers, Superstraight, Nazism, Zionism, TransID,
+
+RCTA, Zoophiles, Pedos/MAPs, Endogenic systems,
+
+MAGA Supporters, AI "Artists"
+
+Discrimination of any kind eg. Misogynists, Homophobia,
+
+Transphobia, Xenophobia, Racists, Sexists, Ableists,
+
+Bigots
 
 People who use mpreg
 
