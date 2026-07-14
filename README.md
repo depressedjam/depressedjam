@@ -57,7 +57,7 @@ any nationality/race, systems, ESSA owners,
 
 those with hidden disabilities
 
-<img width="483" height="516" alt="Untitled182_20260714054056" src="https://github.com/user-attachments/assets/4a9a5027-90c2-4f93-8c26-5bdad58f9a25" />
+<img width="383" height="416" alt="Untitled182_20260714054056" src="https://github.com/user-attachments/assets/4a9a5027-90c2-4f93-8c26-5bdad58f9a25" />
 
 <!--
 **depressedjam/depressedjam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
