@@ -17,10 +17,15 @@ SA "jokes"
 ___________________
 
 INT!!:
+
 Neo/Xenopronoun users
+
 Alterhumans
+
 C+H
+
 PonyTown players
+
 Those who use ttgs
 
 Fans of COD, Spider-Man, Tubbo, The Rookie, Cavetown
