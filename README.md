@@ -14,7 +14,6 @@ RCTA, Zoophiles, Pedos/MAPs, Endogenic systems,
 MAGA Supporters, AI "Artists"
 
 v
-
 Discrimination of any kind eg. Misogynists, Homophobia,
 
 Transphobia, Xenophobia, Racists, Sexists, Ableists,
@@ -22,7 +21,6 @@ Transphobia, Xenophobia, Racists, Sexists, Ableists,
 Bigots
 
 v
-
 People who use mpreg
 
 SA "jokes"
