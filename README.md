@@ -38,7 +38,7 @@ Alterhumans
 
 C+H
 
-PonyTown players
+Pony Town players
 
 Those who use ttgs
 
