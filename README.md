@@ -13,11 +13,13 @@ RCTA, Zoophiles, Pedos/MAPs, Endogenic systems,
 
 MAGA Supporters, AI "Artists"
 
+
 Discrimination of any kind eg. Misogynists, Homophobia,
 
 Transphobia, Xenophobia, Racists, Sexists, Ableists,
 
 Bigots
+
 
 People who use mpreg
 
