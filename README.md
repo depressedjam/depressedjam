@@ -36,6 +36,7 @@ Fans of COD, Spider-Man, Tubbo, The Rookie, Cavetown
 Older fans of FNAF and Flamingo
 ___________________
 Safe space for:
+
 Any religion, Neurodivergent individuals,
 
 Neo/Xeopronoun users, furries, alterhumans,
