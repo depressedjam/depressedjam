@@ -1,3 +1,4 @@
+
 <img width="736" height="184" alt="Untitled181_20260714051300" src="https://github.com/user-attachments/assets/fec2184e-eff7-47d7-9c42-00299e09f269" />
 
 > Before you read, I am 18. If you're uncomfortable with that, feel free to click off.
@@ -57,7 +58,7 @@ any nationality/race, systems, ESSA owners,
 
 those with hidden disabilities
 
-<img width="183" height="216" alt="Untitled182_20260714054056" src="https://github.com/user-attachments/assets/4a9a5027-90c2-4f93-8c26-5bdad58f9a25" />
+<img width="283" height="316" alt="Untitled182_20260714054830" src="https://github.com/user-attachments/assets/a8806fb4-89c0-4fef-a336-185bb670f447" />
 
 <!--
 **depressedjam/depressedjam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
