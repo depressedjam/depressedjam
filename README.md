@@ -3,6 +3,8 @@
 
 > Before you read, I am 18. If you're uncomfortable with that, feel free to click off.
 
+Main ponies: Lefty, Irl me, Estonia, Axl Rose, Peter Parker, Roach
+
 DNI List
 
 ___________________
