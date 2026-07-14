@@ -1,7 +1,7 @@
 
 <img width="736" height="184" alt="Untitled181_20260714051300" src="https://github.com/user-attachments/assets/fec2184e-eff7-47d7-9c42-00299e09f269" />
 
-> Before you read, I am 18. If you're uncomfortable with that, feel free to click off.
+> Please do not copy any of my ponies.
 
 Main ponies: Lefty, Irl me, Estonia, Axl Rose, Peter Parker, Roach
 
