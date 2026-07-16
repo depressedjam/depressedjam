@@ -9,7 +9,8 @@ Main ponies: Lefty, Irl me, Estonia, Axl Rose, Peter Parker, Roach
 <img width="100" height="100" alt="Untitled186_20260715013155" src="https://github.com/user-attachments/assets/36a4ef53-d203-4ebb-be0c-499f37f808eb" />
 <img width="100" height="100" alt="Untitled186_20260715013203" src="https://github.com/user-attachments/assets/723cb8c2-20ac-4a9a-8df0-c9e97c1379ca" />
 <img width="100" height="100" alt="Untitled186_20260715013208" src="https://github.com/user-attachments/assets/e8959a45-e683-438c-811b-6824c45b981c" />
-<img width="100" height="100" alt="Untitled186_20260715013214" src="https://github.com/user-attachments/assets/ed32ca57-9f90-4873-8d6b-0fff97d3c7b5" />
+<img width="100" height="100" alt="Untitled186_20260716081549" src="https://github.com/user-attachments/assets/3d06ff0f-00ff-4500-b21e-6faa55df6eb6" />
+
 
 DNI List
 
