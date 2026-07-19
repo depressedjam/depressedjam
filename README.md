@@ -69,7 +69,7 @@ Neo/Xeopronoun users, furries, alterhumans,
 
 any nationality/race, systems, ESSA owners,
 
-those with hidden disabilities
+typing quirks, those with hidden disabilities
 
 <img width="283" height="316" alt="Untitled182_20260714054830" src="https://github.com/user-attachments/assets/a8806fb4-89c0-4fef-a336-185bb670f447" />
 
