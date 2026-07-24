@@ -4,7 +4,7 @@ https://github.com/depressedjam/about.me
 
 > Please do not copy any of my ponies. Sometimes offtab, w2i if I don't respond/int
 
-Main ponies: Lefty, Irl me, Estonia, Axl Rose, Peter Parker, Roach
+Main ponies: Yuji, Lefty, Irl me, Estonia, Axl Rose, Peter Parker, Roach
 
 <img width="100" height="100" alt="Untitled186_20260716082952" src="https://github.com/user-attachments/assets/69ca78a0-f6e0-41e8-9cd1-56d25b523db3" />
 <img width="100" height="100" alt="Untitled186_20260715013155" src="https://github.com/user-attachments/assets/36a4ef53-d203-4ebb-be0c-499f37f808eb" />
