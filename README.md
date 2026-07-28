@@ -6,8 +6,8 @@ https://github.com/depressedjam/about.me
 
 Main ponies: Yuji, Lefty, Irl me, Axl Rose, Peter Parker, Roach
 
-disclaimer! i verbally shut down sometimes and will not always talk when you int with me, please do not take that as me being rude!
-i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later
+byi! i verbally shut down sometimes and will not always talk when you int with me, please do not take that as me being rude!
+i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later, that being said i am very bad at communicating with others so iwc
 
 <img width="100" height="100" alt="Untitled186_20260716082952" src="https://github.com/user-attachments/assets/69ca78a0-f6e0-41e8-9cd1-56d25b523db3" />
 <img width="100" height="100" alt="Untitled186_20260715013155" src="https://github.com/user-attachments/assets/36a4ef53-d203-4ebb-be0c-499f37f808eb" />
