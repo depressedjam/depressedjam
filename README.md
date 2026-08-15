@@ -4,7 +4,7 @@ https://github.com/depressedjam/about.me
 
 > Please do not copy any of my ponies. Sometimes offtab, w2i if I don't respond/int
 
-Kins/Links: Yuji, Cleetus, Peter Parker
+Links n such: Yuji, Tubbo, Peter Parker, Cleetus, Roach, Bonnie Bro
 
 byi! i verbally shut down sometimes and will not always talk when you int with me, please do not take that as me being rude!
 i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later, that being said i am very bad at communicating with others so iwc
@@ -47,7 +47,7 @@ ___________________
 
 INT!!:
 
-JJK Fictionkins !!
+JJK Fictionkins/chains/links !!
 
 Neo/Xenopronoun users
 
