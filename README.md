@@ -5,7 +5,7 @@ https://github.com/depressedjam/about.me
 > Please do not copy any of my ponies. Sometimes offtab, w2i if I don't respond/int
 Please do not send me a friend request randomly, I won't accept it
 
-Links n such: Yuji, Tubbo, Peter Parker, 2D Cleetus, Roach, Bonnie Bro
+Links n such: Yuji, Tubbo, Peter Parker, 2D, Cleetus, Roach, Bonnie Bro
 
 byi! i have memory gaps. also, i'm socially avoidant and will not always talk when you int with me, please do not take that as me being rude!
 i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later
