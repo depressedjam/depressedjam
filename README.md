@@ -16,16 +16,12 @@ DNI List
 ___________________
 Proshipper, Darkshipper, etc.
 
-Radqueers, Superstraight, Nazism, Zionism, TransID,
+Nazism, Zionism, TransID,
 
-RCTA, Zoophiles, Pedos/MAPs, Endogenic systems,
-
-MAGA Supporters, AI "Artists"
+RCTA, Zoophiles, Pedos/MAPs, Endogenic systems, AI "Artists"
 
 v
-Discrimination of any kind eg. Misogynists, Homophobia,
-
-Transphobia, Xenophobia, Racists, Sexists, Ableists,
+Discrimination of any kind eg. Misogynists, Racists, Sexists, Ableists,
 
 Bigots
 
@@ -41,12 +37,6 @@ ___________________
 
 INT!!:
 
-JJK Fictionkins/chains/links !!
-
-Neo/Xenopronoun users
-
-Alterhumans
-
 C+H
 
 Pony Town players
@@ -60,15 +50,7 @@ Fans of COD, Spider-Man, Tubbo, The Rookie, Cavetown
 
 Older fans of FNAF and Flamingo
 ___________________
-Safe space for:
 
-Any religion, Neurodivergent individuals,
-
-Neo/Xeopronoun users, furries, alterhumans,
-
-any nationality/race, systems, ESSA owners,
-
-typing quirks, those with hidden disabilities
 
 <img width="283" height="316" alt="Untitled182_20260714054830" src="https://github.com/user-attachments/assets/a8806fb4-89c0-4fef-a336-185bb670f447" />
 
