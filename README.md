@@ -12,6 +12,8 @@ Links n such: Yuji, Tubbo, Peter Parker, 2D, Cleetus, Roach, Bonnie Bro
 byi! i have memory problems due to trauma. also, i'm socially avoidant and will not always talk when you int with me, please do not take that as me being rude!
 i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later
 
+i'm perma age regressed so don't expect me to act my age!
+
 
 DNI List
 
