@@ -50,7 +50,7 @@ Those who use ttgs
 16-20
 
 v
-Fans of COD, Spider-Man, Tubbo, The Rookie, Cavetown
+Fans of COD, Spider-Man, Tubbo, South Park, Cavetown
 
 Older fans of FNAF and Flamingo
 ___________________
