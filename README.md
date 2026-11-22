@@ -8,10 +8,11 @@ https://github.com/depressedjam/boundaries
 Please do not send me a friend request randomly, I won't accept it
 
 Kins: C!Tubbo, C!Techno, (TH) Peter Parker, Yuji, Ralsei
+
 byi! i have memory problems due to trauma. also, i'm socially avoidant and will not always talk when you int with me, please do not take that as me being rude!
 i will leave my main areas if i get uncomfortable by others near by but i usually return about 10-20 minutes later
 
-i'm perma age regressed so don't expect me to act my age! also, looking for a caregiver! if you are/want to be one, please talk to me cuz i also regress younger too
+i'm perma age regressed to 16
 
 
 DNI List
@@ -49,7 +50,7 @@ Those who use ttgs
 16-20
 
 v
-Fans of COD, Spider-Man, Tubbo, South Park, Cavetown
+Fans of COD, Spider-Man, South Park, Cavetown
 
 Older fans of FNAF and Flamingo
 ___________________
